@@ -1,4 +1,4 @@
-
+premium Little Snitch for macOS Addon | encryption + malware-scanning is the best Little Snitch for macOS addon, featuring encryption and malware-scanning. Secure, efficient, and
 
 
 
